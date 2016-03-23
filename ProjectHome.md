@@ -1,0 +1,1 @@
+OmegleSpyX is not longer maintained on this site. Head over the http://omeglespy.weebly.com/ to get the latest versions!
